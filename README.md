@@ -5,7 +5,8 @@
 
 
 #### Written by TMRSWRR 
-All in one tools for **For Educational Purposes Only**
+All in one tools for **This tool is for educational purposes only ,any illegal use is not accepted**
+
 
 
 ## 👇   How to use   👇
